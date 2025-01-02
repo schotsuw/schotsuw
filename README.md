@@ -8,7 +8,7 @@
 - 🔭 I’m currently working on **SaaS** and **AI**
 - 💬 Ask me about **Anime (esp. HunterXHunter)**
 - 📫 How to reach me: **schotsuw@unb.ca**
-- ⚡ Fun fact: **I got teared up when I eat yummy foods**
+- ⚡ Fun fact: **I always more than I expected in Costco**
 #
 ### ⛓ Languages and Tools ⛓
 
