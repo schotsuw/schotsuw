@@ -7,7 +7,7 @@
 
 - 🔭 I’m currently working on **SaaS** and **AI**
 - 💬 Ask me about **Anime (esp. HunterXHunter)**
-- 📫 How to reach me: **schotsuw@unb.ca**
+- 📫 How to reach me: **schotsuw@unb.ca** or **www.linkedin.com/in/saran-chotsuwan-5b38682b5**
 - ⚡ Fun fact: **I always spend more than I expected in Costco**
 #
 ### ⛓ Languages and Tools ⛓
